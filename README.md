@@ -1,1 +1,1 @@
-# rsschool-cv
+https://actionklo.github.io/rsschool-cv/cv
